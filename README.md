@@ -20,6 +20,8 @@
 
 ## 24 秒项目展示短片
 
+https://github.com/user-attachments/assets/2182f40b-a5bb-44c1-a4fe-f4825ce9343d
+
 ### [点击观看 / 下载项目展示短片](showcase.mp4)
 
 由下方真实截图与原有美术资源轮播制作，含微信联系方式，**非实机玩法录像**。
